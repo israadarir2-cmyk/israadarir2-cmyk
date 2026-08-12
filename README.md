@@ -6,7 +6,7 @@
 ### 🚀 عني:
 * 🌱 أنا حالياً أدرس هندسة البرمجيات وأطور مهاراتي البرمجية باستمرار.
 * 💡 مهتمة بتعلم التقنيات الحديثة وبناء مشاريع برمجية مفيدة وعملية.
-* 📫 للواصل معي: [https://www.linkedin.com/in/israa-darir-58b60a343?utm_source=share_via&utm_content=profile&utm_medium=member_android]
+* 📫 للتواصل معي:[https://www.linkedin.com/in/israa-darir-58b60a343?utm_source=share_via&utm_content=profile&utm_medium=member_android]
 
 ---
 
